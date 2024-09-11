@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @fer03102009
+- 👀 estudante do ensino medio
